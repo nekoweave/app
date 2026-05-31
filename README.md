@@ -42,5 +42,6 @@ To purchase a full lifetime license, request a commercial offer, or discuss part
 - **Email:** nekoweave@gmail.com
 - **Telegram Support:** [@Nekoweave_bot](https://t.me/Nekoweave_bot)
 - **Website:** https://nekoweave.top
+- **Website:** https://ua.nekoweave.top
 
 *Create the ultimate atmosphere for your customers with NekoWeave!*
