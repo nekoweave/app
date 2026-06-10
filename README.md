@@ -44,5 +44,5 @@ To purchase a full lifetime license, request a commercial offer, or discuss part
 - **Telegram Support:** [@Nekoweave_bot](https://t.me/Nekoweave_bot)
 - **Website:** https://nekoweave.top
 - **Website:** https://ua.nekoweave.top
-- Official Website: nekoweave.top | Українська версія: ua.nekoweave.top
+
 *Create the ultimate atmosphere for your customers with NekoWeave!*
